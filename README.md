@@ -1,4 +1,4 @@
 Schedule
 ========
 
-Record Ours Daily Work! Cheer Up! ^.^
+Record Ours Daily Work! Cheer Up!
